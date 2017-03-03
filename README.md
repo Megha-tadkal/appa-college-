@@ -1,2 +1,0 @@
-# appa-college-
-Public
